@@ -1,5 +1,5 @@
 # 💫About Me :
-Hi I am Achyuth Kokate B C
+Hi, I am Achyuth Kokate B C
 
 I'm a student
 
