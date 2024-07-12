@@ -1,7 +1,7 @@
 # 💫About Me :
 Hi, I am Achyuth Kokate B C
 
-I'm a student
+Student
 
 studying Bachelor of computer Applications[BCA]
 
